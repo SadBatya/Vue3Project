@@ -1,9 +1,5 @@
-# vue3-course
-
-## Подписываемся на телеграм 
-
-[Telegram канал](https://t.me/ulbi_tv)
 
 
-## Если хочешь поддержать меня 
-[Patreon](https://www.patreon.com/ulbitv)
+[Telegram канал](https://t.me/sadbatyaa)
+
+Телефона для связи: 8-909-776-47-38
